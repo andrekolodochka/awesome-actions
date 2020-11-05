@@ -53,3 +53,5 @@ We got a :star: from [@ofuen](https://github.com/ofuen)
 We got a :star: from [@shariqmus](https://github.com/shariqmus)
 
 We got a :star: from [@GMoney000](https://github.com/GMoney000)
+
+We got a :star: from [@dantz15](https://github.com/dantz15)
